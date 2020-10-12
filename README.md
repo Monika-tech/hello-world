@@ -10,3 +10,5 @@ Deze verandering is gewoon om te oefenen.
 En de enige manier is natuurlijk oefenen oefenen oefenen.
 Tja, heel vervelend
 
+Okee tjatja chacha cha
+
